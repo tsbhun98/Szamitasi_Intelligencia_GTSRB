@@ -1,0 +1,1 @@
+# Szamitasi_Intelligencia_GTSRB
